@@ -232,4 +232,4 @@ ESET Internet Security is available as a full free version with all features and
 Your online safety is crucial. Don’t wait—**download ESET Internet Security FREE today** and protect your digital life!
 
 ---
-**Last updated:** 2026-09-16 22:52:43 UTC
+**Last updated:** 2026-09-17 01:17:00 UTC
